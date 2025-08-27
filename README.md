@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Alamahul Bayan, [Linkedln](www.linkedin.com/in/alamahul-bayan-30b16a24a)
